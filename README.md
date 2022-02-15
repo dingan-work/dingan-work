@@ -10,3 +10,5 @@
 我经常在<a href="https://www.ganhua.work">我的博客</a>上表述我的心情和对技术的热爱。我热衷于以尽可能公开的方式学习和与他人分享知识。
 
 我的钱包地址：0xE0d532E56284eC6454f71148e29FF7e1E62d1ccD
+
+🔔 Telegram: @Gannhua
