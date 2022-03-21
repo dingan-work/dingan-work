@@ -11,4 +11,5 @@
 
 我的钱包地址：0xE0d532E56284eC6454f71148e29FF7e1E62d1ccD
 
-🔔 Telegram: @Gannhua
+🔔 discord: https://discord.gg/Aep6Jr74K5
+✨ telegram: https://t.me/Gannhua 
